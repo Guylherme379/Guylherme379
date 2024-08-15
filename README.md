@@ -11,3 +11,4 @@ Hi i am guylherme and you can ask guylherme with Y ? yes my name has a Y, it's a
 - 😄 Pronouns: he/him..
 - ⚡ Fun fact: i spent 3 year in calls with a friend and now he hates me.
 
+![](https://media.tenor.com/INWZc-XWx2AAAAAM/skeleton-berserk.gif)
