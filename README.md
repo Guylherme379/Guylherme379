@@ -28,4 +28,9 @@ i want to have one of this:
 
 
 
-![](https://github.com/user-attachments/assets/5f32d96c-338e-4e4d-8b33-7b77922146e4)
+Sei uri kushandisa muturikiri kushandura izvi?
+вам очень любопытно даже использовать это
+立即停止使用翻譯機
+真剣に警告します、やめたほうがいいです
+Eriитди, сез туктый алмыйсыз, чөнки мин моңа үкенермен
+អ្នក​ណា​ដែល​អាន​ឬ​បក​ប្រែ​វា​ជា​ខ្ទើយ
